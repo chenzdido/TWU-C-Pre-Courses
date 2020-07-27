@@ -1,0 +1,1 @@
+！[image1](https://github.com/chenzdido/TWU-C-Pre-Courses/blob/master/Linux%20Basic%20Commands/Exercise1.PNG)
